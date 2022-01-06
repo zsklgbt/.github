@@ -2,4 +2,4 @@
 
 ## W trosce o byt i przyszłość naszej szkoły,
 
-my Jej uczniowie wierzący w równość będącą źródłem prawdy, sprawiedliwości, dobra i piękna ustanawiamy zsklgbt.
+my - Jej uczniowie wierzący w równość będącą źródłem prawdy, sprawiedliwości, dobra i piękna ustanawiamy zsklgbt.
